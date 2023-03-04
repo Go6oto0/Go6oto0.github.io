@@ -1,0 +1,1 @@
+# Go6oto0.github.io
